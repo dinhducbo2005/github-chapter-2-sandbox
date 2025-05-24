@@ -9,3 +9,5 @@ This is Manh's studying "language" area
 ## My contact
 - [Facebook](https://www.facebook.com/manhboo123)
 - [GitHub](https://github.com/dinhducbo2005)
+- [Instagram](https://www.instagram.com/cdcnmg.babiboo/)
+- [Tiktok](https://www.tiktok.com/@manh_booo?lang=vi-VN)
